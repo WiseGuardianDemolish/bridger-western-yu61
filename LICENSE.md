@@ -1,4 +1,4 @@
-
+bridger western smart Script offers the most advanced bridger western Script, with auto-collect and auto-upgrade. Perfect for dominating any match.
 
 
 
